@@ -1,1 +1,0 @@
-# atamrifai.github.io
